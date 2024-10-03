@@ -1,0 +1,3 @@
+
+
+## structure of the game
